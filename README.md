@@ -1,5 +1,5 @@
 # Abdul Basit
-### Front-End Web Developer, Solution Specialist
+### Aspiring Data Scientist | Front-End Web Developer | Solution Specialist
 
 ⤷ Seeking projects to build my portfolio and career.
 
